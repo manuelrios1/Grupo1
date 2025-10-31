@@ -3,3 +3,4 @@
 
 Manuel Rios
 Verónica Humanes
+Nikol Ocampo
