@@ -2,3 +2,4 @@
 -Primera fila
 
 Manuel Rios
+Verónica Humanes
