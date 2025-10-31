@@ -4,3 +4,4 @@
 Manuel Rios
 Verónica Humanes
 Danna Gómez
+Nikol Ocampo
